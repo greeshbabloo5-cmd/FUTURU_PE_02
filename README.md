@@ -1,4 +1,4 @@
-# FUTURU_PE_02
+# FUTURE_PE_02
 AI Content Marketing &amp; UGC Ad Pack
 Task 2: AI Content Marketing & UGC Ad Pack
 Industry: Luxury Beauty & Wellness
